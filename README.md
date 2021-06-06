@@ -1,0 +1,1 @@
+The recipe is Szechuan Egg Noodles W/ Vegetables.  Its basically just chinese noodles but it has eggs, vegetables, and is made much spicier than regular chinese noodles.
